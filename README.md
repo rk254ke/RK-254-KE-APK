@@ -1,2 +1,1 @@
-# DOWNLOAD RK 254 KE APP-ETS2 COMPANION
-RK 254 KE is your ultimate gaming and trucking hub! Explore ETS2 maps, TruckersMP live features, premium truck and bus mods, gaming news, route planners, fuel calculators, Kenyan radio, videos and more. Stay connected with the latest in ETS2, Counter-Strike, eFootball and gaming entertainment!
+IMPORTANT ON DOWNLOADING: PLEASE CLICK THE 3 TOTS AT THE TOP OF YOUR SCREEN AND CLICK OPEN IN WEB BROWSER IF YOU ARE DOWNLOADING FROM TIKTOK, TIKTOK DO NOT ALLOW DOWNLOADS ON ITS BROWSER. 
